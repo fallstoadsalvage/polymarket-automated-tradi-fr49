@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket premium Automation Script: trailing-stops & automated-trade-execution, the #1 automation-script. Includes trailing-stops and
 
 
 
